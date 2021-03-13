@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kundanapallyvamshi
 - 👀 I’m interested in Web Designing
-- 🌱 I’m currently learning Back End Technologies
+- 🌱 I’m a cricket lover.
 - 📫 How to reach me vamshikundanapally@gmail.com
 
 <!---
